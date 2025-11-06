@@ -1,2 +1,2 @@
 # parcial2
-parcial 2
+Gerson Roberth Mamani Mendoza
